@@ -17,3 +17,22 @@ Báo cáo tiến độ học tập qua 15 môn học:
 + Viết báo cáo BT lớn của nhóm: https://drive.google.com/file/d/14iB7oATpDAjKFjJBCnyswDXvVO-MZOB6/view
  
 
+#Chấm chéo
+- Người chấm : Mai Thị Lý 
+- Điểm 8.5
+- Nhận xét: Hoàn thành đầy đủ các khóa học yêu cầu, tham gia tích cực vào xây dựng nhóm và bài tập thầy giao.
+
+- Người chấm : Nguyễn Thanh Minh
+- Điểm 9
+- Nhận xét: Hoàn thành đủ các khóa học yêu cầu nhưng thiếu bài tập tuần 6 , Bài tập nhóm có tham gia , thiếu viết SEMAT và tóm tắt môn học.
+
+
+
+Người chấm : Nguyễn Đức Minh 
+
+Điểm 9
+
+Nhận xét: Hoàn thành đủ các khóa học yêu cầu nhưng thiếu bài tập tuần 6 , Bài tập nhóm có tham gia , thiếu viết SEMAT và tóm tắt môn học.
+- Người chấm: Nguyễn Đức Mạnh
+- Điểm: 8.5
+- Nhận xét: Hoàn thành đầy đủ các khóa học yêu cầu, tham gia vào bài tập nhóm, thiếu viết thẻ SEMAT.
